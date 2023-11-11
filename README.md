@@ -1,1 +1,1 @@
-# seventh-day-Adventist-Church
+# Seventh-day-Adventist-Church
